@@ -1,1 +1,1 @@
-Mos Craciun si prietenii sai.
+Mos Craciun si prietenii lor.
